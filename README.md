@@ -1,2 +1,2 @@
-# The_Dad_Whos_a_Dad_a_Worker_and_a_Tamagotchi_2
+# The Dad Who's a Dad a Worker and a Tamagotchi 2
 The sequel to the somewhat ironic modern
